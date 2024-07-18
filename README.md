@@ -19,7 +19,11 @@
    At 11.45 **Mr. Sony goyal** come. He tell us the meaning of _LIFE_. He tell us that dont lives for carrier . Carrier is part of life . He also tell us to give your 100% in every . Their speech is very inspiring and entertaing . After that their is a break of half hour.
    After that **Mr. Pancham** tell us about body language .Like how to define real and fake smile, position signs etc .
    Overall today is very inpiring.
-   **next chapter coming soon**
-  this is about collage days  (**_Prabhsimran singh_**)
-  
+   ## Experience of date 16-7-24
+   Today is full of fun . Beacause today our class start at 11.00 am of codegne. In which sir old us to make docs file. after that at1.30 our quize starts of general knowlage in which our group was B and we got 23 point and our position was 4th.and our second period was also quize .That quize was of english in which we got first position
+   so my day was full of fun
+   ## Experience of 17-7-24
+   Today our class's day. our first was of math in which learnt integration of 12 class . This class of 1.3o hour. After that our class was of UHV in which we leart about human being. After that there was a paper english. After that we join code gne .
+   this is my all day in GNDEC. 
+   
   
